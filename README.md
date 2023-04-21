@@ -1,1 +1,1 @@
-# https-kangji92.github.io-
+# kangji92.github.io
